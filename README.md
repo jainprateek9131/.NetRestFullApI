@@ -1,0 +1,12 @@
+![image](https://github.com/jainprateek9131/.NetRestFullApI/assets/68363818/59265b1d-ef59-43b3-b668-01c910a2a3d9)
+![image](https://github.com/jainprateek9131/.NetRestFullApI/assets/68363818/1bbf6cee-5472-48b1-9dd3-88fae4365fc8)
+![image](https://github.com/jainprateek9131/.NetRestFullApI/assets/68363818/d4e246b8-5655-4299-a66a-e8ac361092ce)
+![image](https://github.com/jainprateek9131/.NetRestFullApI/assets/68363818/35e760d2-8b0b-4485-ba54-2b030416e026)
+![image](https://github.com/jainprateek9131/.NetRestFullApI/assets/68363818/9d648849-23ed-4887-a757-51a209bb21fa)
+![image](https://github.com/jainprateek9131/.NetRestFullApI/assets/68363818/e5924180-f883-4177-9d2c-490a6e66aed3)
+![image](https://github.com/jainprateek9131/.NetRestFullApI/assets/68363818/8f993b2d-4f16-4746-8c08-509b05506b34)
+![image](https://github.com/jainprateek9131/.NetRestFullApI/assets/68363818/d6716a63-b9f8-4db3-95d4-98aaf44ad426)
+![image](https://github.com/jainprateek9131/.NetRestFullApI/assets/68363818/cea4a1bf-0c7b-46f2-871d-405e8a6bc5a2)
+![image](https://github.com/jainprateek9131/.NetRestFullApI/assets/68363818/209c1acc-c509-42d4-8f17-bc829135b694)
+![image](https://github.com/jainprateek9131/.NetRestFullApI/assets/68363818/12869ce7-b048-497a-b66a-46d6e307f263)
+
